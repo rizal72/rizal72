@@ -1,4 +1,4 @@
-## Hi there 👋
+R&D Product Owner @ ABB | Solution Analyst @ Kalpa | AI-Assisted Development | Multi-Agent Systems | 26 Years in Digital
 
 <!--
 **rizal72/rizal72** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
